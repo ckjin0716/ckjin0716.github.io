@@ -1,1 +1,0 @@
-# ckjin0716.github.io
